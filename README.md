@@ -1,0 +1,1 @@
+# case_study_heavy_equipment
